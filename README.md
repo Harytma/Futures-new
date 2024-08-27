@@ -6,3 +6,5 @@ ini adalah rancangan masa depan saya :
   meskipun kelihatannya mustahil tetapi aku yakin akan bisa melakukannya hahaha
 
   bagaimana kamu bisa mencapainya?  dan kapan emangnya
+
+aku juga memiliki rencana untuk memiliki 10 anak
